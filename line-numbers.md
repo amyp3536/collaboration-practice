@@ -6,7 +6,7 @@
 #### 6
 #### 7 I'm amy
 #### 8
-#### 9 github is really good
+#### 9 Github is really awsome
 #### 10
 #### 11
 #### 12
